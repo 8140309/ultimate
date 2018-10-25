@@ -1,2 +1,0 @@
-# ultimate
-Created with Blabla
